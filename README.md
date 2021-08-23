@@ -1,0 +1,5 @@
+- 👋 yo
+- 👀 wassup
+- 🌱 tryna make things
+- 💞️ make my way in the world
+- 📫 december 25th 2022
